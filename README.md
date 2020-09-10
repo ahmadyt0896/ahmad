@@ -1,0 +1,2 @@
+# ahmad
+gunakan dengan bijak
